@@ -1,0 +1,1 @@
+Creado por Bob Kane y Bill Finger, Batman debutó en mayo de 1939 en Detective Comics #27. Tras presenciar el asesinato de sus padres, el multimillonario Bruce Wayne dedicó su vida a entrenar su cuerpo y mente para convertirse en el vigilante definitivo que lucha contra el crimen en Ciudad Gótica
